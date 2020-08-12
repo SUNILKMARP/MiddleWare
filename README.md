@@ -4,6 +4,6 @@
 sunilkumar
 papireddigari
 so and so office 
-mohan reddy
+mohan
 got job in CTS
 
